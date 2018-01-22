@@ -12,7 +12,7 @@
  Конечно же, я есть в Вконтакте (https://vk.com/id185057900)            
  Ну и инстаграм: (https://www.instagram.com/aisha_kaplanova/)
  Для тех, кто меня не видел))
- ![](https://www.instagram.com/p/Bdh4CsfnojHPSGBEwKZDEyWBAo_zubFC_CKT9c0/?taken-by=aisha_kaplanova)
+ ![](https://vk.com/id185057900?z=photo185057900_456241106%2Fphotos185057900)
 
 А это моё расписание на второе полугодие!
  
@@ -24,5 +24,5 @@
 | Цифровая гр. |                  | Грамматика |
 
 Моё любимое стихотворение - это стихотворение Константина Симонова "Жди меня"
-[Щёлкните эту ссылку][http://rupoem.ru/simonov/zhdi-menya-i.aspx] чтобы прочитать его!
+[http://rupoem.ru/simonov/zhdi-menya-i.aspx] чтобы прочитать его!
 ---------------
